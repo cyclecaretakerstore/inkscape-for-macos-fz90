@@ -1,4 +1,4 @@
-
+Enhance Inkscape for macOS with ultimate Plugin for Inkscape for macOS - AI-assisted design and asset management, the #1 plugin. Includes AI-assisted design and asset management
 
 
 
